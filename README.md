@@ -1,4 +1,4 @@
-# 🏄‍♂️ Liam Walton
+# 💻 Liam Walton
 
 **`Digital Craftsman (Developer)`**
 
